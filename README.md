@@ -1,6 +1,7 @@
 ## Hi there 👋
 
-## [sticker.webm](https://github.com/user-attachments/assets/67059ecb-916c-426f-b718-cd8d95a91fee)
+## ![679acb75ac9377d5009ce50f8679ba84](https://github.com/user-attachments/assets/e9b8199a-5b81-4e6e-bfc3-3d8c31076223)
+
 
 
 <!--
