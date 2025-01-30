@@ -1,6 +1,7 @@
 ## тут чото написать надо бы
 
-## ![782d4e2082198921a5a0039a6fed3483](https://github.com/user-attachments/assets/462476bf-5501-4fe9-a1bc-4b6e7258fced)
+## ![d4f87a6b575fca573c6a4c32ed7745a5](https://github.com/user-attachments/assets/35c9489b-7e45-4226-89ca-d9621ec1f829)
+
 
 
 
