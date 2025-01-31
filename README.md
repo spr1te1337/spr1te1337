@@ -1,6 +1,7 @@
 ## тут чото написать надо бы
 
-## ![Untitled](https://github.com/user-attachments/assets/dc75fa90-4f65-47ed-ada0-d51ff5db489e)
+## ![Untitled](https://github.com/user-attachments/assets/1a6979d3-54f0-4fd3-b6c1-bcf5a8eb29d2)
+
 
 
 
