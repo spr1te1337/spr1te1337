@@ -1,4 +1,4 @@
-## тут чото написать надо бы
+
 
 ## ![Untitled](https://github.com/user-attachments/assets/1a6979d3-54f0-4fd3-b6c1-bcf5a8eb29d2)
 
